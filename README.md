@@ -2,7 +2,7 @@
 - 👀 I’m interested in a car
 - 🌱 I’m currently learning github
 - 💞️ I’m looking to collaborate on the roof
-- 📫 How to reach me, stretch
+- 📫 How to reach me? stretch
 - 😄 Pro nouns: and amuture nouns welcome
 - ⚡ Fun fact, sounds like fun run, Common Sence, manners, and kindness are all free! 
 
